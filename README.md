@@ -304,9 +304,8 @@
 Official Valentine Status: ACCEPTED 💌
 
 Reward unlocked:
-🍫 snacks
-🤗 hugs
-🌸 cute date
+🍡 mochi
+👀 attention
 
 Now screenshot this as proof 😌
       </p>
